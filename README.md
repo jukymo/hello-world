@@ -1,2 +1,3 @@
 # hello-world
 Newby, soakin my feet a bit...
+I have always wanted to figure out and learn what this was about. Hopfully I can get a grasp on it and find more to do with my spare time!
